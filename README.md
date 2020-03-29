@@ -1,0 +1,2 @@
+# eduardkenneth
+Student / Programmer 
